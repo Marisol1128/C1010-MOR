@@ -1,0 +1,3 @@
+Mi nombre es Marisol Ortega Rosales, soy bióloga con la especialidad en biotecnología por parte del Instituto Politécnico Nacional (IPN) y Máster en Antropología y Genética Forense por parte de la UNIVERSIDAD DE GRANADA. ESPAÑA. Actualmente laboro en un Centro de Diagnóstico Molecular y Genómico, donde laboro como Genetista en el área Médica, Forense y genómica.
+## Actividades laborales
+Toma de muestras biológicas para análisis médicos y forenses (identificación humana), así como el procesamiento, análisis e interpretación de estas muestras y perfiles genéticos con aplicación médico-forense, salud reproductiva, oncogenómica, análisis clínicos y enfermedades infecciosas.
